@@ -1,2 +1,4 @@
 # Visual-Prompt-Studio
-This is my prompt portfolio for my Art Appreciation Class.
+***NAME*** Winner Solomon
+***COURSE*** Art Appreciation Section 1301-172
+***DESCRIPTION*** This is my Art Appreciation class
