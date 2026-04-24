@@ -1,4 +1,5 @@
 |***What has changed?(Medium, values, ideas, subject matter)***|Something that has changed throughout all three artwork is the ***medium used to express an idea.***|
+|--------------------------------------------------------------------------------------------|
 |In Persistence of Memory, Dali uses oil on a canvas to paint a surreal art piece.
 In the Funerary mask of Tutankhamun, the craftsmen encase 23 karat gold around Tut’s body and decorates it in colored glass paste and semi-precious stones.
 In the packaging video, the Youtuber records themselves packaging a box of jewelry and jewelry boxes for a customer with neat organization to look aesthetic.|
